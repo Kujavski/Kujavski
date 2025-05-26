@@ -7,3 +7,5 @@
 - 😄 Acho interressante aprender coisas novas
 - 🐐🎀𝕵𝖔𝖆̃𝖔🎀🐐
 - ⚡ Eu adoro jogar video games nos tempos livres
+
+![CalmDownI'MHereGIF](https://github.com/user-attachments/assets/f2f40dc8-f7b9-405b-8cbf-0f2d72acda1c)
