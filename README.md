@@ -5,5 +5,5 @@
 - 🤔 Eu estou querendo aprender a programar no SCRATCH e JAVASCRIPT 
 - ✌️ Meta ser um Desenvolvedor Full Stack
 - 😄 Acho interressante aprender coisas novas
-- 🐐🎀𝕵𝖔𝖆̃𝖔 🎀🐐
+- 🐐🎀𝕵𝖔𝖆̃𝖔🎀🐐
 - ⚡ Eu adoro jogar video games nos tempos livres
