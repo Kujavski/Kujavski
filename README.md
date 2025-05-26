@@ -1,4 +1,4 @@
-#  Salve bom 🤘
+#  Salve suavidade 🤘
 - 😒 Meu gmail é joao.kujavski@escola.pr.gov.br
 - 😎 Eu tenho interesse em aprender a programar
 - 😀 A procura de mais conhecimento 
