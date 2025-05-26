@@ -1,4 +1,4 @@
-##  Salve bom 🤘
+#  Salve bom 🤘
 - 😒 Meu gmail é joao.kujavski@escola.pr.gov.br
 - 😎 Eu tenho interesse em aprender a programar
 - 😀 A procura de mais conhecimento 
@@ -8,4 +8,5 @@
 - 🐐🎀𝕵𝖔𝖆̃𝖔🎀🐐
 - ⚡ Eu adoro jogar video games nos tempos livres
 
-![CalmDownI'MHereGIF](https://github.com/user-attachments/assets/f2f40dc8-f7b9-405b-8cbf-0f2d72acda1c)
+![CristianoRonaldoIsNamedPlayerOfTheCenturyAtTheGlobeSoccerAwards GifGIF](https://github.com/user-attachments/assets/2092245d-7f74-45a3-85a8-3cab0194d1b8)
+
