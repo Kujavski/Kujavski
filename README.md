@@ -8,5 +8,3 @@
 - 🐐🎀𝕵𝖔𝖆̃𝖔🎀🐐
 - ⚡ Eu adoro jogar video games nos tempos livres
 
-![CristianoRonaldoIsNamedPlayerOfTheCenturyAtTheGlobeSoccerAwards GifGIF](https://github.com/user-attachments/assets/2092245d-7f74-45a3-85a8-3cab0194d1b8)
-
